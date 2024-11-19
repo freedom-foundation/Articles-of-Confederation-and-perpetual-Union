@@ -1,5 +1,7 @@
 # Articles-of-Confederation-and-perpetual-Union
 
+To all to whom these Presents shall come, we, the undersigned Delegates of the States affixed to our Names send greeting. Whereas the Delegates of the United States of America in Congress assembled did on the fifteenth day of November in the year of our Lord One Thousand Seven Hundred and Seventy seven, and in the Second Year of the Independence of
+
 ## Contents
 
 [92a6f0d01b68aafb4ee88df4ad291ddd.txt](https://github.com/freedom-foundation/Articles-of-Confederation-and-perpetual-Union/blob/main/92a6f0d01b68aafb4ee88df4ad291ddd.txt) - the full text
